@@ -1,2 +1,1 @@
-Among Us
-Amogus
+Newport High School
